@@ -1,0 +1,2 @@
+# Gacha-Laurea
+Temporary
